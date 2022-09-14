@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @eldor007- Rasulmukhamedov Eldor
-- 👀 I’m interested in play Mobayl Legens
+- 👀 I’m interested in playing Mobayl Legens
 - 🌱 I’m currently learning IT at AU
 - 💞️ My ID number is 210719
 - 📫  How to reach me using My mail - 21au052@akfauniversity.org
